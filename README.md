@@ -12,3 +12,4 @@
 |巴黎世家|Balenciaga|法国|保安人员殴打华人顾客|[链接](https://zh.wikipedia.org/zh-cn/巴黎世家#涉嫌歧視中國人)|2018|
 |APA集团株式会社|APA Group|日本|在其酒店防止书籍否认南京大屠杀以及慰安妇的史实|[链接](https://zh.wikipedia.org/zh-cn/APA集团#APA酒店放置右翼書籍事件)|2017|
 |Spreadshirt|Spreadshirt|德国|发布印有“救一只狗，吃一个中国人”的文化衫|[链接](https://zh.wikipedia.org/wiki/Spreadshirt)|2017|
+|休斯敦火箭|Houston Rockets|美国|休斯顿火箭队总经理莫雷在社交媒体公开发表涉港不当言论|[链接](https://zh.wikipedia.org/wiki/%E4%BC%91%E6%96%AF%E6%95%A6%E7%81%AB%E7%AE%AD#%E4%BC%91%E6%96%AF%E9%A1%BF%E7%81%AB%E7%AE%AD%E9%98%9F%E6%80%BB%E7%BB%8F%E7%90%86%E8%8E%AB%E9%9B%B7%E5%8F%91%E8%A1%A8%E6%B6%89%E6%B8%AF%E8%A8%80%E8%AE%BA)|2019|
